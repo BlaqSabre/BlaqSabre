@@ -9,5 +9,5 @@
 - 💬 Ask me about Python & Unity
 - 📫 How to reach me: 👀
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I like bread
+- ⚡ Fun fact: I'm Bilingual
 
